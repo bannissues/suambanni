@@ -1,2 +1,0 @@
-# suambanni
-trabalhos e tals
